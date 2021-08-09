@@ -1,2 +1,1 @@
-# MD-IMRUL
-D college student
+# MD-IMRRUL
